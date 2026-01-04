@@ -1,1 +1,0 @@
-# Thailand-1933-to-2026-draw-list
